@@ -30,7 +30,7 @@ It showcases my skills, projects, and ways to connect with me.
 ## 📬 Contact Me  
 - 📧 Email: [jitendraswain432002@gmail.com](mailto:jitendraswain432002@gmail.com)  
 - 💼 LinkedIn: [linkedin.com/in/jitendra-swain-0121392a6](https://www.linkedin.com/in/jitendra-swain-0121392a6/)  
-- 📷 Instagram: [@jitendra_07___](https://www.instagram.com/jitendra_07___/)  
-- 💬 WhatsApp: [+91 7873730859](https://wa.me/+917873730859)  
+- 📷 Instagram: [@jitendra_07___](https://www.instagram.com/jitendra_07i/)  
+
 
 
